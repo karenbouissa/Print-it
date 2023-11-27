@@ -1,5 +1,5 @@
 # PRINT IT!
-![Uploading Capture d’écran 2023-11-27 à 12.43.29.png…]()
+file:///Users/KarenB/Desktop/Capture%20d%E2%80%99e%CC%81cran%202023-11-27%20a%CC%80%2012.43.29.png
 
 # FRANÇAIS
 
