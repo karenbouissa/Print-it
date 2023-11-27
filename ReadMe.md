@@ -1,5 +1,5 @@
 # PRINT IT!
-file:///Users/KarenB/Desktop/Capture%20d%E2%80%99e%CC%81cran%202023-11-27%20a%CC%80%2012.43.29.png
+<img width="1680" alt="Capture d’écran 2023-11-27 à 12 43 29" src="https://github.com/karenbouissa/Print-it/assets/127218821/4fc36c44-bb0a-431e-8f5b-f5d86d3a0b05">
 
 # FRANÇAIS
 
